@@ -1,1 +1,0 @@
-# Artem_Burdeinyi
